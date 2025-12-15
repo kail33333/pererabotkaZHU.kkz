@@ -1,2 +1,2 @@
-# pererabotka.kz
+# pererabotkaZHU.KZ
 pererabotka-bruschatka
